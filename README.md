@@ -1,9 +1,2 @@
 # lorcleak
-funny antidote moment!!!! 
-
-
-so lorc (low orbit roblox canon) has leaked, its the beta, so it might be shit, but who cares!!
-
-fuck antidote!!!
-
-join.gg/soggy
+emmpuu decided to be a bitch and leak the deobf code, fuck him.
